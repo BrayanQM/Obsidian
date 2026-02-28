@@ -1,0 +1,1 @@
+la introduccion debe de ner los primeros 4 parafos estan #encuestas #entervistas 
